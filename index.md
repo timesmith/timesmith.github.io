@@ -20,6 +20,26 @@ each Sun 2-8pm - Please Call First
 
 ### Sun 02, 09, 16, 23, 30 April 2017
 
+## Address
+
+BCS Books and Comics
+701 Inwood Dr.
+Bryan, TX 77802
+
+Corner of Texas and Inwood
+1 block north of Cafe Eccell
+what was Luby's at one time
+
+## Hours
+
+Tuesday - Saturday: 12pm - 8pm
+Sunday: 1pm - 7pm
+Monday: closed
+
+## Contact
+
+tel: 979-846-7412
+e-mail: bcsbooksandcomics at gmail dot com
 
 ## Welcome to GitHub Pages
 
