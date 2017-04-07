@@ -5,8 +5,8 @@
 Events start at approximately 8p
 Please try to arrive as close to 7:40p as you can.
 
-### Booster Draft (3) - Aether Revolt
-Fri 07, 14, 21 & 28 April 2017
+Booster Draft (3) - Aether Revolt
+### Fri 07, 14, 21 & 28 April 2017
 
 ### Casual Standard Contructed
 ... until and unless 8+ people want to pay/play for DCI/prizes
