@@ -48,7 +48,7 @@ what was Luby's at one time
 
 ## Contact
 
-* tel: 979-846-7412
+* phone: 979-846-7412
 * e-mail: bcsbooksandcomics at gmail dot com
 
 ### GitHub
