@@ -16,7 +16,7 @@ Booster Draft (3) - Aether Revolt
 
 ... also Pack Wars/Mini Master - Kaladesh Set or player's choice
 
-Events start at approximately 7p - Please Call First
+Events start at approximately 8p - Please Call First
 
 ### Thurs 06, 13, 20, 27 April 2017
 
