@@ -1,7 +1,7 @@
 ## Magic Events April 2017
 
 ### Fri 07, 14, 21 & 28 - Friday Night Magic
-- Booster Draft (3) or 2-Head Giant - Aether Revolt
+- Booster Draft or 2-Head Giant - Aether Revolt
 - 2 Head Giant Sealed requires # of players multiple of 4... (8, 12, 16, ..)
 - Events start at approximately 8p
 - Please try to arrive close to 7:40p.
