@@ -1,22 +1,18 @@
 ## Magic Events April 2017
 
 ### Friday Night Magic
-2 Head Giant Sealed requires # of players multiple of 4... (8, 12, 16, ..)
-
-Events start at approximately 8p
-
-Please try to arrive close to 7:40p.
+- 2 Head Giant Sealed requires # of players multiple of 4... (8, 12, 16, ..)
+- Events start at approximately 8p
+- Please try to arrive close to 7:40p.
 
 Booster Draft (3) - Aether Revolt
 
 ### Fri 07, 14, 21 & 28 April 2017
 
 ### Casual Standard Contructed
-... until and unless 8+ people want to pay/play for DCI/prizes
-
-... also Pack Wars/Mini Master - Kaladesh Set or player's choice
-
-Events start at approximately 8p - Please Call First
+- until and unless 8+ people want to pay/play for DCI/prizes
+- also Pack Wars/Mini Master - Kaladesh Set or player's choice
+- Events start at approximately 8p - Please Call First
 
 ### Thurs 06, 13, 20, 27 April 2017
 
@@ -27,18 +23,13 @@ each Sun 2-8pm - Please Call First
 
 ## Address
 
-BCS Books and Comics
+- BCS Books and Comics
+- 701 Inwood Dr.
+- Bryan, TX 77802
 
-701 Inwood Dr.
-
-Bryan, TX 77802
-
-
-Corner of Texas and Inwood
-
-1 block north of Cafe Eccell
-
-what was Luby's at one time
+- Corner of Texas and Inwood
+- 1 block north of Cafe Eccell
+- what was Luby's at one time
 
 ## Hours
 
